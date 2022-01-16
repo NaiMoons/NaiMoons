@@ -1,7 +1,7 @@
 - 👋 Hola,soy @NaiMoons
 - 👍🏻 Estoy interesada en conocer y crear
 - 🌱 Estoy aprendiendo a jugar
-- 💞️ Me gustaría de vuestra amiga
+- 💞️ Me gustaría ser vuestra amiga
 - 📫 Como recordarme: Nai
 
 <!---
